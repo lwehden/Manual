@@ -137,5 +137,6 @@ Founders are our customers. In order of our announced participation:
 | [Sherveen Mashayekhi](https://www.linkedin.com/in/sherveenm/), [Alex Rothberg](https://www.linkedin.com/in/alex-g-rothberg/)| **[Free Agency](https://www.freeagency.com/)**|
 | [Tom Coates](https://www.linkedin.com/in/tecoates/), [Rabble](https://www.linkedin.com/in/rabble/), [Christoph Moskalonek](https://www.linkedin.com/in/hermiteer/)| **[Planetary](https://planetary.social/)**|
 | [Turi Munthe](https://www.linkedin.com/in/turimunthe/), [J. Paul Neeley](https://www.linkedin.com/in/jpaulneeley/)| **[Parlia](https://parlia.com/)**|
+| [Vignan Velivela](https://www.linkedin.com/in/vignanv8//), [Harshita Arora](https://www.linkedin.com/in/harshita-arora11/), [Ravi Chandra Anagani](https://www.linkedin.com/in/ravichandra737/?originalSubdomain=in/), [Ravi Chandra Bandlamudi](https://www.linkedin.com/in/ravichandrabandlamudi/)| **[AtoB](https://www.atob.city//)**|
 
 <sup>*</sup> Acquired :thumbsup:
